@@ -14,16 +14,16 @@ Andreia Gonçalves
 Meu nome é Andreia Gonçalves, sou trabalhadora/ estudante, com grande interesse na área de IT.
 
 ## Formação
-A frequentar a Academia TechAnters na Damia Recruitment Academia
+  - A frequentar a Academia TechAnters na Damia Recruitment Academia
 
-Curso de Recursos Humanos / Aprenda Recursos Humanos na Prática / Recursos Humanos (Básico para iniciantes)
-  Udemy - Maio de 2021
+  - Curso de Recursos Humanos / Aprenda Recursos Humanos na Prática / Recursos Humanos (Básico para iniciantes)
+       Udemy - Maio de 2021
 
-Formação em Massagem e Auxiliar de Fisioterapia
-  4NTEP - 2016
+  - Formação em Massagem e Auxiliar de Fisioterapia
+         4NTEP - 2016
   
-12º ano - Curso de Animação Sociocultural
-  Escola Secundária Pedro alexandrino
+  - 12º ano - Curso de Animação Sociocultural
+     Escola Secundária Pedro alexandrino
 
 ---
 
