@@ -38,7 +38,7 @@ Meu nome é Andreia Gonçalves, sou trabalhadora/ estudante, com grande interess
   - Criação de solicitações, cartas, sms's nos contratos dos clientes e envio das mesmas 
   - Alterar condições de pagamento, contas certas e mensalidades - Resposta de ajuda a colegas através de actividades e solicitações 
   - Experiência com: FCMC, CRM, C360, Enterprise, P16, Timesheet, Go contact, Kolab 
-  -Formação a novos colegas 
+  - Formação a novos colegas 
 
 
 * (20/01/2014 – 30/01/2018) <pt>
